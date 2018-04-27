@@ -26,4 +26,4 @@ To make the sauce, in a medium saucepan melt the butter or margarine over low he
 
 Combine cooked pasta, sauteed vegetables and sauce. Pour into a 2 quart casserole dish. Add the last cup of grated Cheddar cheese to top of mixture.
 
-Bake uncovered in preheated oven until cheese on top is melted and brown, 15 to 20 minutes. Serve warm.
+Bake uncovered in preheated oven until cheese on top is melted, 15 to 20 minutes. Serve resulting ashes hot.
